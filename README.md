@@ -1,4 +1,4 @@
-# Campfire_Song-SBSP
+# The campfire song song
 I call this one, the campfire song song  
 Let's gather 'round the campfire, and sing our campfire song  
 Our C-A-M-P-F-I-R-E S-O-N-G song  
